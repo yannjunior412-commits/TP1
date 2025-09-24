@@ -1,0 +1,6 @@
+- **TSAFACK Yann Junior (23U2905)** 
+- **DONGMO TSAKENG Ryan Terry (23V2250)** 
+- **TCHIO KUETE Verlain Junior (23U2692)** 
+- **TCHEUTCHOUA TCHINDA MAFFO Jordan Le Roi (24G2367)** 
+- **NGWBA NDOM Andre Morgan (23V2169)**  
+- **ZEBAZE NANDJOU Alan (23U2648)**
